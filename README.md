@@ -10,4 +10,4 @@
 - *gustavo.albuquerque.silva@escola.pr.gov.br*
 - *@7zGustavo* 
 
-![](https://tenor.com/fqzAIcSFcMi.gif)
+![Tanjiro Dança](https://github.com/user-attachments/assets/00eaf203-fc23-4c79-96b6-663352552c6a)
