@@ -9,3 +9,5 @@
 
 - *gustavo.albuquerque.silva@escola.pr.gov.br*
 - *@7zGustavo* 
+
+![](https://tenor.com/pt-BR/view/caminhao-drift-carreta-truck-gif-16921656)
