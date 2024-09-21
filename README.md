@@ -4,6 +4,7 @@
 
 - *Estudo no CCM Beatriz Biavatti*
 - *Este espaço é para compartilhar projetos desenvolvidos por mim*
+- *Estou há 1 ano na musculação (Só uma curiosidade.)💪*
 
 ### *Contato:*
 
